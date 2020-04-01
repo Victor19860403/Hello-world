@@ -1,2 +1,2 @@
 # Hello-world
-The people world
+The people wor  и отдыхают ,а  мы пытаемся научиться  интерестному.
